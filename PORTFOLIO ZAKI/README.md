@@ -146,8 +146,8 @@ Vous êtes libre de l'utiliser, le modifier et le partager.
 ## 👤 Contact
 
 **Zaki Chahboun**  
-📧 zaki.chahboun@example.com  
-💼 [LinkedIn](https://linkedin.com/in/zakichahboun)  
+📧 zakichahboun123@gmail.com  
+💼 [LinkedIn]([https://linkedin.com/in/zakichahboun](https://www.linkedin.com/in/zaki-chahboun-717128196/))  
 📍 Tanger, Maroc
 
 ---
